@@ -1,1 +1,8 @@
 # a_random_quote_slide-show-start
+# Reference List
+## Liles, M. (2021). 100 Positive Quotes to Help You Always Stay Positive. Parade. https://parade.com/980089/marynliles/stay-positive-quotes/
+## Motivational Quotes [@motivational]. (2022, April 30). Focus more on the people who inspire you rather than the people who annoy you. You'll get much further in life. - Kristen Butler [Tweet]. Twitter. https://twitter.com/motivational/status/1520595757631524867
+## Motivational Quotes [@motivational]. (2022, Mar 26). We are born in 1 day. We die in 1 day. We can change in 1 day. We can fall in love in 1 day. Anything can happen in just 1 day. - Fayle Foreman [Tweet]. Twitter. https://twitter.com/motivational/status/1507718487036342287
+## Pontejos, K. (2022, April 26). Positive & Inspirational Quotes [Image]. Facebook. https://www.facebook.com/Positiveandinspirationalquotes/posts/pfbid02Dcm7h9aWEYAUyGgtsZhw97C9qMkcQsz7kyYEWJDD4uYYvF3QywVtcwnTw2wo64cgl?__cft__[0]=AZXjoOQkzmqW1IGe5XoCP9HrlZeiB0a0PhSMP1qSsmUVDNPWxa023twyvCUuWr8UbKn3WoP1B-SPrexE6jFGfdH_eEmmYoEE72kkzOuDFCU8IztVhSanQwzrd7OHJUsYNhNG3siemmnXWfAYfKG8hnzgakE9bRqzTNDs5Co3cV-fsW4FQGkGlln8yMPIQOnvXjQ&__tn__=%2CO%2CP-R
+## Pontejos, K. (2022, April 11). Positive & Inspirational Quotes [Image]. Facebook. https://www.facebook.com/Positiveandinspirationalquotes/posts/pfbid02DZV4mqJAYVyttCs98oHRDpvGSkZ2csRp9mzPPqDQaZchebECKt7V1p5jwMX257eEl?__cft__[0]=AZVJR8iVw4pEvIaENaWOkuv8fjY6I7h6k0udCukLEmWZaDcU7M3DUEbLciecJohUbcyJI9aWEHkhAsLLW1OAYZOcKhZxtU_L-ssu4RHkr8laLLR_jrFyqv0lRiuG01GML8hUBT5HZJKwUyKFPRp6cxIqqcOfJitXrodGF3nue_G0ygimo4cTHOHrcO_w5keQFao&__tn__=%2CO%2CP-R
+
